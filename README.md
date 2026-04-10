@@ -1,0 +1,1 @@
+# capek-kali-sumpah-ya-Allah
